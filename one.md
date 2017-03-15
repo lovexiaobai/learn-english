@@ -3,7 +3,7 @@
 做自己内心觉得对的事，因为做什么都会有人指指点点。
 2.	Do something today that your future self will thank you for.  
 终有一天，你会感激如此努力的自己。  
-(备注:There is nothing noble in being superior to some other man. The true nobility is in being superior to your previous self. 优于别人，并不高贵，真正的高贵应该是优于过去的自己。)
+(There is nothing noble in being superior to some other man. The true nobility is in being superior to your previous self. 优于别人，并不高贵，真正的高贵应该是优于过去的自己。)
 3.	The greatest pleasure in life is doing what people say you cannot do.  
 生命中最大的快乐就是去做那些别人认为你不行的事情。
 4. The best way to predict the future is to create it.  
