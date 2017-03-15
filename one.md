@@ -8,7 +8,7 @@
 生命中最大的快乐就是去做那些别人认为你不行的事情。
 4. The best way to predict the future is to create it. ([video](https://mp.weixin.qq.com/s?__biz=MjM5MjAzMzM4MA==&mid=503634463&idx=1&sn=e505e75b229b68d256550b4e39d1dbd7))  
 最好预测未来的方式就是去创造未来。
-5.	If your dreams do not scare your, they are not big enough. ([video](https://mp.weixin.qq.com/s?__biz=MjM5MjAzMzM4MA==&mid=503634537&idx=1&sn=cadf3094bc61ea79c4a8c8a778fa05d7))  
+5.	If your dreams do not scare you, they are not big enough. ([video](https://mp.weixin.qq.com/s?__biz=MjM5MjAzMzM4MA==&mid=503634537&idx=1&sn=cadf3094bc61ea79c4a8c8a778fa05d7))  
 如果你的梦想没有吓到你，那你的梦想还不够大！
 6.	If you spend too much time thinking about a thing, you’ll never get it done. ([video](https://mp.weixin.qq.com/s?__biz=MjM5MjAzMzM4MA==&mid=503634583&idx=1&sn=338d1b3110339ac13ea5c2015fc9c175))  
 如果花太多时间去想，你永远也做不成想做的事。
