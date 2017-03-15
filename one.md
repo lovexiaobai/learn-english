@@ -1,4 +1,4 @@
-### 21天口语打卡句子
+### 21天口语打卡句子(第一阶段)
 1. Do what you feel in your heart to be right, for you’ll be criticized anyway.  
 做自己内心觉得对的事，因为做什么都会有人指指点点。
 2.	Do something today that your future self will thank you for.  
