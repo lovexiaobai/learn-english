@@ -1,1 +1,44 @@
-##21天口语打卡句子1. Do what you feel in your heart to be right, for you’ll be criticized anyway.  做自己内心觉得对的事，因为做什么都会有人指指点点。2.	Do something today that your future self will thank you for.  终有一天，你会感激如此努力的自己。  (备注:There is nothing noble in being superior to some other man. The true nobility is in being superior to your previous self. 优于别人，并不高贵，真正的高贵应该是优于过去的自己。)3.	The greatest pleasure in life is doing what people say you cannot do.  生命中最大的快乐就是去做那些别人认为你不行的事情。4. The best way to predict the future is to create it.  最好预测未来的方式就是去创造未来。5.	If your dreams do not scare your, they are not big enough.如果你的梦想没有吓到你，那你的梦想还不够大！6.	If you spend too much time thinking about a thing, you’ll never get it done.  如果花太多时间去想，你永远也做不成想做的事。7.	Stop thinking too much, just join us!  别想太多，加入我们吧！8.	You cannot expect to live a positive life if you hang with negative people.  跟消极的人在一起，你就别指望过积极地生活。9.	Beauty isn’t about having a pretty face, it’s about having a pretty mind, a pretty heart, and a pretty soul.美丽不是指拥有漂亮的脸蛋，而是拥有聪明的大脑，善良的心和崇高的灵魂。10.	If you get tired, learn to rest, not quit.  如果你累了，学会休息，而不是放弃。11.	The sign of a beautiful person is that they always see beauty in others.  美丽的人的标志是总能发现别人身上的美。12.	Everything you do now is for your future.  想想吧，你所做的一切都是为了你的未来。13.	It’s going to be hard, but hard is not impossible.  这会很难，但难不代表不可能。14.	You only fail when you stop trying.  放弃努力就等于失败。15.	When you focus on problems you will have more problems. When you focus on possibilities you’ll have more opportunities.  当你只关注问题，会有更多的问题。当你关注可能性，就会有更多的机会。16.	The best love is the one that makes you a better person, without changing you into someone other than yourself.  最好的爱情是让你成为更好的自己，而不是把你变成另外一个人。17.	Be who you are and say what you feel, because those who mind don’t matter and those who matter don’t mind.  勇敢做自己，说自已想说的，因为那些介意的人不重要，重要的人不介意。18.	If the plan doesn’t work, change the plan, but never the goal.  如果计划没有成功，改变计划，而不是改变目标。19.	A comfort zone is a beautiful place, but nothing ever grows there.  “舒适区”是一个好地方，但在舒适区没什么成长。20.	One day, I will say: I DID IT!  总有一天，我会队自己说：我做到了！21.	I’m proud of myself, 21 days, I DID IT!  我为自己感到骄傲，21天，我做到了。
+### 21天口语打卡句子
+1. Do what you feel in your heart to be right, for you’ll be criticized anyway.  
+做自己内心觉得对的事，因为做什么都会有人指指点点。
+2.	Do something today that your future self will thank you for.  
+终有一天，你会感激如此努力的自己。  
+(备注:There is nothing noble in being superior to some other man. The true nobility is in being superior to your previous self. 优于别人，并不高贵，真正的高贵应该是优于过去的自己。)
+3.	The greatest pleasure in life is doing what people say you cannot do.  
+生命中最大的快乐就是去做那些别人认为你不行的事情。
+4. The best way to predict the future is to create it.  
+最好预测未来的方式就是去创造未来。
+5.	If your dreams do not scare your, they are not big enough.  
+如果你的梦想没有吓到你，那你的梦想还不够大！
+6.	If you spend too much time thinking about a thing, you’ll never get it done.  
+如果花太多时间去想，你永远也做不成想做的事。
+7.	Stop thinking too much, just join us!  
+别想太多，加入我们吧！
+8.	You cannot expect to live a positive life if you hang with negative people.  
+跟消极的人在一起，你就别指望过积极地生活。
+9.	Beauty isn’t about having a pretty face, it’s about having a pretty mind, a pretty heart, and a pretty soul.  
+美丽不是指拥有漂亮的脸蛋，而是拥有聪明的大脑，善良的心和崇高的灵魂。
+10.	If you get tired, learn to rest, not quit.  
+如果你累了，学会休息，而不是放弃。
+11.	The sign of a beautiful person is that they always see beauty in others.  
+美丽的人的标志是总能发现别人身上的美。
+12.	Everything you do now is for your future.  
+想想吧，你所做的一切都是为了你的未来。
+13.	It’s going to be hard, but hard is not impossible.  
+这会很难，但难不代表不可能。
+14.	You only fail when you stop trying.  
+放弃努力就等于失败。
+15.	When you focus on problems you will have more problems. When you focus on possibilities you’ll have more opportunities.  
+当你只关注问题，会有更多的问题。当你关注可能性，就会有更多的机会。
+16.	The best love is the one that makes you a better person, without changing you into someone other than yourself.  
+最好的爱情是让你成为更好的自己，而不是把你变成另外一个人。
+17.	Be who you are and say what you feel, because those who mind don’t matter and those who matter don’t mind.  
+勇敢做自己，说自已想说的，因为那些介意的人不重要，重要的人不介意。
+18.	If the plan doesn’t work, change the plan, but never the goal.  
+如果计划没有成功，改变计划，而不是改变目标。
+19.	A comfort zone is a beautiful place, but nothing ever grows there.  
+“舒适区”是一个好地方，但在舒适区没什么成长。
+20.	One day, I will say: I DID IT!  
+总有一天，我会队自己说：我做到了！
+21.	I’m proud of myself, 21 days, I DID IT!  
+我为自己感到骄傲，21天，我做到了。
