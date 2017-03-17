@@ -1,4 +1,5 @@
 ### 21天口语打卡句子(第一阶段)
+###### 公众号: 纽约新青年
 1. Do what you feel in your heart to be right, for you’ll be criticized anyway. ([video](https://mp.weixin.qq.com/s?__biz=MjM5MjAzMzM4MA==&mid=503634287&idx=1&sn=7a10846b40dcbb8e250604aaa3667a4e))  
 做自己内心觉得对的事，因为做什么都会有人指指点点。
 2.	Do something today that your future self will thank you for. ([video](https://mp.weixin.qq.com/s?__biz=MjM5MjAzMzM4MA==&mid=503634378&idx=1&sn=d15f0667668e106c38aaa7149496392d))  
