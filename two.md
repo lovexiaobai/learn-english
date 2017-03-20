@@ -5,3 +5,4 @@
 3. [What if you didn't need money or attention?](http://mp.weixin.qq.com/s/WUjrkqtkI7gSj3zEbW3u-Q)
 4. [The Only Thing to Fear](http://mp.weixin.qq.com/s/WMf6LCraypB8sS9YW92otA)
 5. [be able to walk away](http://mp.weixin.qq.com/s/ol9Wozw4K9Iny90I_FQb8Q)
+6. [If](http://mp.weixin.qq.com/s/T-6At2-1b45oqlaepdnKEg)
