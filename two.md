@@ -6,3 +6,4 @@
 4. [The Only Thing to Fear](http://mp.weixin.qq.com/s/WMf6LCraypB8sS9YW92otA)
 5. [be able to walk away](http://mp.weixin.qq.com/s/ol9Wozw4K9Iny90I_FQb8Q)
 6. [If](http://mp.weixin.qq.com/s/T-6At2-1b45oqlaepdnKEg)
+7. [Meditation for Beginners, Part 1](http://mp.weixin.qq.com/s/oeEUy0EQxkVpTFJGh5DKlw)
