@@ -7,3 +7,4 @@
 5. [be able to walk away](http://mp.weixin.qq.com/s/ol9Wozw4K9Iny90I_FQb8Q)
 6. [If](http://mp.weixin.qq.com/s/T-6At2-1b45oqlaepdnKEg)
 7. [Meditation for Beginners, Part 1](http://mp.weixin.qq.com/s/oeEUy0EQxkVpTFJGh5DKlw)
+8. [Meditation for Beginners, Part 2](http://mp.weixin.qq.com/s/oVag08zVDSWC401OOR5kog)
